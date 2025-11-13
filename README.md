@@ -20,5 +20,5 @@ IT Support Technician and Network Specialist transitioning into Software Develop
 ## 📫 Connect With Me
 - **Email:** Njabulosim11@gmail.com
 - **LinkedIn:** [linkedin.com/in/njabulo-simelane](https://www.linkedin.com/in/njabulo-simelane-aa163b127/)
-- **Portfolio:** [https://NJABULOSIMZA.github.io](https://https://github.com/NJABULOSIMZA.io)
+- **Portfolio:** [https://NJABULOSIMZA.github.io](https://github.com/NJABULOSIMZA.io)
 
